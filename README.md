@@ -1,5 +1,7 @@
 #demo
 
-some heeyyyy
-heyyy i feel fantasticcc
-babyyyyyyyyyyy
+heeeeeeyyyyyyyy
+how u doinnn
+well im doin just fineeee
+i lieddd
+im dyingggg insideeeee
